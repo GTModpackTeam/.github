@@ -1,4 +1,4 @@
-## GregTech Modpack Team 👋
+## GregTech Expert Modpack Team 👋
 
 <!--
 
